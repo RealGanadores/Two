@@ -1,0 +1,4 @@
+zawr
+tvea
+naklo
+molq
